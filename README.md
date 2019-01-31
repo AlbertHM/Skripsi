@@ -1,0 +1,2 @@
+# Skripsi
+Tugas akhirlah pokoknya
